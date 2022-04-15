@@ -75,9 +75,3 @@ I'll tell you a bunch of stories about Claudette and Normand eventually, and may
 So it's not like there I haven't seen a lot of great dads in my story. Really, don't worry about it. I'm OK.
 
 There is no villain, that's probably the biggest spoiler. Not a conventionally evil person who shows up wringing their hands and cackling about how they're going to show you, and you'll rue the day and all of that. There's magic in this story but no evil wizards or crazy witches. If there's a villain, it's time and fear. I've been thinking about it, and in my life, the villain is time and fear. It ties you up, so you end up going nowhere fast. And life's too short for that, when you were created to be a Hero.
-
-
-
-
-
-
