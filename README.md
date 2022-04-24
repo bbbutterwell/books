@@ -2,6 +2,6 @@
 
 ## Witches and Knights and Unicorn Fights
 
-*The Story behind the Legend of the Origin of a Tale of Heroes and Villains*
+*The Story behind the Legend of the Origin of a Tale of Rumours of Heroes and Villainy*
 
 ... and a hurried & hopeful submission for [Royal Road's April Writathon](https://www.royalroad.com/blog/46/join-aprils-fun-events)
