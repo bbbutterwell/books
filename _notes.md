@@ -24,10 +24,12 @@ Normand and Claudette already have a daughter, who is Maeve's.... second cousin?
 
 Did Ani and Normand grow up on Sisters Island?
 
-Has MAeve asked Ani to finish her stories?
+Has Maeve asked Ani to finish her stories?
 
 What's Ani up to? Where is she living?
 
 Don't mention spectrum disorder / Aspergers
 
 Make Maeve 25
+
+mm: "Of course there's a fourth attic"
