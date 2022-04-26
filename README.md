@@ -2,7 +2,7 @@
 
 ## Witches & Knights & Unicorn Fights
 
-![image Cover Image](./img/WKUF_Cover_20220425_blue.png)
+![image Cover Image](./img/WKUF_Cover_800x1200.png)
 
 ... and a hurried & hopeful submission for [Royal Road's April Writathon](https://www.royalroad.com/blog/46/join-aprils-fun-events)
 
@@ -11,5 +11,3 @@
 Cover art images:
 
 <a href="https://www.freevector.com/chequers-silhouette-vector-set-21849">FreeVector.com : Chess Pieces</a>
-
-<a href="https://www.freevector.com/shield-silhouettes-vector-set-">FreeVector.com : Shields</a>
