@@ -4,8 +4,6 @@
 
 ![image Cover Image](./img/WKUF_Cover_20220425_blue.png)
 
-
-
 ... and a hurried & hopeful submission for [Royal Road's April Writathon](https://www.royalroad.com/blog/46/join-aprils-fun-events)
 
 ---
