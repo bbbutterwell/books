@@ -2,7 +2,7 @@
 
 ## Witches & Knights & Unicorn Fights
 
-![image Cover Image](./img/WKUF_Cover_800x1200.png)
+![image Cover Image](./_img/WKUF_Cover_800x1200.png)
 
 Once upon a time, Maeve Morgan decided to be born... but she doesn't quite remember why.
 
