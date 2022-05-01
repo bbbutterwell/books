@@ -1,8 +1,10 @@
-mm: Normand and Claudette's visit, we meet the Kid
+~~mm: Normand and Claudette's visit, we meet the Kid~~
 
 bn: the Curious Dream, as seen from Owl
 
-bn: detects Fenrii, they discuss mission, dreams, narratives, counts, and Owl
+~~bn: detects Fenrii~~
+
+bn: Bardlii + Fenrii they discuss mission, dreams, narratives, counts, and Owl
 
 ym: Ani and Maeve, second night
 
@@ -21,3 +23,7 @@ bn: Bardlii and Fenrii encounter the Gnome Wanderer
 owl: Owl ruminates on being misnamed, the crows convene below for the Annual Squawking
 
 mm: Arthur comes over
+
+11: mm: Maeve and Olivia, talking turkey - the map, the old shed, Bee. What's Olivia's problem at school?
+
+12: 

@@ -20,7 +20,7 @@ Research the career of musician Jeff Lynne
 
 How did Maeve wake up Bee (chapter 3)? How was she different before?
 
-Normand and Claudette already have a daughter, who is Maeve's.... second cousin? Claudette isn't pregnant again, or is she?
+
 
 Did Ani and Normand grow up on Sisters Island?
 
@@ -28,8 +28,10 @@ Has Maeve asked Ani to finish her stories?
 
 What's Ani up to? Where is she living?
 
-Don't mention spectrum disorder / Aspergers
+Don't mention spectrum disorder / Aspergers?
 
-Make Maeve 25
+Make Maeve 23, going on 25
 
 mm: "Of course there's a fourth attic"
+
+What are the Sisters?
