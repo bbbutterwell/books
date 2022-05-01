@@ -8,4 +8,6 @@ What's Bardlii up to?
 
 Treasure map?
 
+---
 
+This was about noon, I guess. I was getting pretty hungry. Oliv was standing in middle of the blueberry patch like she didn't know what to do next, and I had been gone almost twenty-seven minutes. I had a shoulder bag made out of old jeans filled with potato chip bags, bottles of pop, sleeping bags, pillows, a roll of toilet paper, and a lamp.
