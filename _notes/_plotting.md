@@ -24,6 +24,8 @@ owl: Owl ruminates on being misnamed, the crows convene below for the Annual Squ
 
 mm: Arthur comes over
 
-11: mm: Maeve and Olivia, talking turkey - the map, the old shed, Bee. What's Olivia's problem at school?
+11: mm: Maeve and Olivia, talking turkey - the map, the old shed, Bee. 
 
-12: 
+Maeve wants to know how Olivia is doing, and is also worried she's lost her friend forever. Maybe she sees some kind of pattern by the end
+
+Olivia doesn't want to talk about school, but she has questions about the island, maybe. Something about her dad. Olive wants to know about Ani.
