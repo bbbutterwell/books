@@ -20,8 +20,6 @@ Research the career of musician Jeff Lynne
 
 How did Maeve wake up Bee (chapter 3)? How was she different before?
 
-
-
 Did Ani and Normand grow up on Sisters Island?
 
 Has Maeve asked Ani to finish her stories?
@@ -35,3 +33,7 @@ Make Maeve 23, going on 25
 mm: "Of course there's a fourth attic"
 
 What are the Sisters?
+
+Maeve starts wearing earbuds
+
+"You're staying with me all week. We're going to make a lot of pies"
