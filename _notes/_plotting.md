@@ -29,3 +29,13 @@ mm: Arthur comes over
 Maeve wants to know how Olivia is doing, and is also worried she's lost her friend forever. Maybe she sees some kind of pattern by the end
 
 Olivia doesn't want to talk about school, but she has questions about the island, maybe. Something about her dad. Olive wants to know about Ani.
+
+---
+
+Soondaii
+Rathersdaii
+Fraiidaii
+Thirdsdaii
+Whensdaii
+Twosdaii
+Moondaii
