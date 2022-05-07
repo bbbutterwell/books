@@ -5,6 +5,14 @@ Edit suggestions:
 
 Tomorrow is now today though, and Olivia's not in her room, __so maybe it wasn't__.
 
+
+
+---
+
+Chp 1:
+
+ot really. That's when a lot of things for me changed. The same number of minutes happened in that year as any other year, except maybe leap years, but a lot more story happened. That's how it feels, **so**.
+
 ---
 
 ##### **[invidious](https://www.royalroad.com/profile/154472)** on [12 - Crossroads](https://www.royalroad.com/fiction/chapter/901505)[5 hours ago](https://www.royalroad.com/fiction/chapter/901505?comment=6279651#comment-6279651)
