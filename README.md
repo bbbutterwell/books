@@ -22,6 +22,8 @@ Which of our narrators will untangle this curious knot, by bravely and surely ad
 
 [participant in the [Royal Road's April Writathon](https://www.royalroad.com/blog/46/join-aprils-fun-events)]
 
+**Patreon**: https://www.patreon.com/bbbutterwell
+
 ---
 
 Cover art images:
