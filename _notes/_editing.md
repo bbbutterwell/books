@@ -5,8 +5,6 @@ Edit suggestions:
 
 Tomorrow is now today though, and Olivia's not in her room, __so maybe it wasn't__.
 
-
-
 ---
 
 Chp 1:
