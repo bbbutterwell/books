@@ -1,4 +1,4 @@
-<p><hr/><span xmlns:dct="http://purl.org/dc/terms/" href="http://purl.org/dc/dcmitype/Text" property="dct:title" rel="dct:type"><b><i>Witches and Knights and Unicorn Fights</i></b></span> by <a xmlns:cc="http://creativecommons.org/ns#" href="https://github.com/bbbutterwell/book" property="cc:attributionName" rel="cc:attributionURL">B.B. Butterwell</a> is presently licensed under a <a rel="license" href="http://creativecommons.org/licenses/by-nc-nd/4.0/">Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International License</a><hr/></p>
+<hr/><span xmlns:dct="http://purl.org/dc/terms/" href="http://purl.org/dc/dcmitype/Text" property="dct:title" rel="dct:type"><i>Witches & Knights & Unicorn Fights</i></span>, <small>edited by <a xmlns:cc="http://creativecommons.org/ns#" href="https://github.com/bbbutterwell" property="cc:attributionName" rel="cc:attributionURL">BBButterwell</a>,<br/>licensed under <a rel="license" href="http://creativecommons.org/licenses/by-nc-nd/4.0/">CC Attribution-NonCommercial-NoDerivatives 4.0 International</a></small><hr/>
 
 ## Witches & Knights & Unicorn Fights
 
