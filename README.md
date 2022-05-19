@@ -22,7 +22,7 @@ Which of our narrators will untangle this curious knot, by bravely and surely ad
 
 [participant in the [Royal Road's April Writathon](https://www.royalroad.com/blog/46/join-aprils-fun-events)]
 
-**Patreon**: https://www.patreon.com/bbbutterwell
+<a href='https://ko-fi.com/T6T8BCPTV' target='_blank'><img height='36' style='border:0px;height:36px;' src='https://cdn.ko-fi.com/cdn/kofi5.png?v=3' border='0' alt='Support me at ko-fi.com' /></a>
 
 ---
 
