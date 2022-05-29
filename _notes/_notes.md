@@ -26,17 +26,11 @@ Has Maeve asked Ani to finish her stories?
 
 What's Ani up to? Where is she living?
 
-Don't mention spectrum disorder / Aspergers?
-
 Make Maeve 23, going on 25
 
 mm: "Of course there's a fourth attic"
 
-What are the Sisters?
-
-Maeve starts wearing earbuds
-
-"You're staying with me all week. We're going to make a lot of pies"
+Maeve starts wearing earbuds[?]
 
 yellow vs black
 
@@ -67,3 +61,23 @@ Maeve remembers her classmates by a single thing about them.
 Move the scene about dropping off Dooley to before they get to the island?
 
 Does Turtle Norm play a bigger part in Maeve's story later?
+
+Bard and Barbarian - questionably certifiable heroes
+
+Fenrii and Bardlii talk about the Short and Long accounts - 
+
+---
+
+Maeve listening to Evil Woman on repeat
+
+"You're staying with me all week. We're going to make a lot of pies"
+
+Chap 4: 
+
+Bardlii needs to do something different on his birthday. Does he steal something trivial from the Hall? 
+
+Has Bardlii acquired outdoor boots before he left?
+
+Count the level shifts as Bardlii ascends / descends 
+
+Bardlii has been promoted from the Inner to the Outer arm
