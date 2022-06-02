@@ -14,6 +14,18 @@ Bard and Barbarian - questionably certifiable heroes
 
 Fenrii and Bardlii talk about the Short and Long accounts.
 
+
+
+Normand and Claudette come over with kid. Maeve locked in room, listening to Evil Woman on repeat.
+
+Talk about the radio?
+
+Talk about the dreams?
+
+What's Bardlii up to?
+
+Treasure map?
+
 ## Ch 03
 
 Maeve listens to CFGH-FM [101.01, *The Falllls!*] on her thirteenth birthday, after fixing the radio (which is a series of side quests). Does this happen after she does a bunch of target practice, and then Hope comes to pay a visit?
@@ -33,3 +45,5 @@ Count the level shifts as Bardlii ascends / descends
 Bardlii has been promoted from the Inner to the Outer arm
 
 if the 230-volume set is *presently* still in the Archive, then how many volumes were there in Bardlii's time
+
+

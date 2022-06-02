@@ -1,14 +1,4 @@
-Normand and Claudette come over with kid. Maeve locked in room, listening to Evil Woman on repeat.
 
-Talk about the radio?
-
-Talk about the dreams?
-
-What's Bardlii up to?
-
-Treasure map?
-
----
 
 Ani Esther Morgan considers how to begin this new letter, which she intends to send by electronic mail to the condo committee just before the weekend, when she and Maevis will be far away in a family campground, cooking up their last hot dogs and making up games with Monopoly money. The committee will send somebody to knock, knock, knock on their door, but nobody will be home. Ani will leave a note on the kitchen table, that reads, *Ellen, stop using your key for non-emergencies. This is still our home.*
 
