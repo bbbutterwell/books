@@ -1,38 +1,36 @@
-
-
 Ani Esther Morgan considers how to begin this new letter, which she intends to send by electronic mail to the condo committee just before the weekend, when she and Maevis will be far away in a family campground, cooking up their last hot dogs and making up games with Monopoly money. The committee will send somebody to knock, knock, knock on their door, but nobody will be home. Ani will leave a note on the kitchen table, that reads, *Ellen, stop using your key for non-emergencies. This is still our home.*
 
 The World Wide Web has only been open for a few short years, but Ani thinks she's already made all the electronic email mistakes a person can ever make, at least once. So she leaves out the recipient addresses until the end this time, so she won't accidentally hit the send button before the letter had all the very worst ideas edited out, all of the typos thoroughly removed, and the recipient list carefully considered and re-considered. She will do this last part very soberly.
 
 She starts with her subject. It reads:
 
-**Regarding our shithead neighbour, Jackson Young**
+**Regarding our shithead neighbour, Jackson Newhouse**
 
 It feels good to finally get that off her chest, through her fingers, to somebody else. Her computer now knows how she feels. It has no soul, of course (as far as she can tell), but since she is now connected to the World Wide Web, she believes some computer somewhere in the world - maybe the most powerful one, maybe in Russia - now also knows how she feels today, and will remember, and will understand, in its own way. 
 
 Then she changes the subject line to: 
 
-**Regarding our neighbour, Jackson Young, the shithead**
+**Regarding our neighbour, Jackson Newhouse, the shithead**
 
 She tries changing the "the" to an "a", to see whether that feels more or less accurate, if she were being completely honest:
 
-**Regarding our neighbour, Jackson Young, a shithead**
+**Regarding our neighbour, Jackson Newhouse, a shithead**
 
 That doesn't seem to make it any better. Then:
 
-**Regarding Jackson Young, our Shithead Neighbour**
+**Regarding Jackson Newhouse, our Shithead Neighbour**
 
 She wonders for a while whether either or both the words *Shithead* and *Neighbour* should be capitalized, in this case.
 
 She shortens the Regarding to just Re: 
 
-**Re: Jackson Young, our Shithead Neighbour**
+**Re: Jackson Newhouse, our Shithead Neighbour**
 
 Then Ani recalls this will make people think the epithet has originated from somebody else other than her, and she certainly doesn't want to to leave that impression. She changes the Re: momentarily to "About" (with and without the colon), and plays with the case:
 
-**About: Jackson Young, our Shithead Neighbour**
+**About: Jackson Newhouse, our Shithead Neighbour**
 
-**About Jackson Young, our shithead Neighbour**
+**About Jackson Newhouse, our shithead Neighbour**
 
 She rests her elbows on the desk, her chin on her interlocked hands to keep them from shaking quite so much. She stares at the screen.
 
@@ -40,7 +38,7 @@ Her electronic mail program has been helpfully pointing out all this time that *
 
 She concludes that "Regarding" (and with a colon) is more professional, and also, first words and proper names are the only things worth capitalizing, in most cases, and so decides to stick with that, and give things a moment to settle:
 
-**Regarding: Jackson Young, our shithead neighbour**
+**Regarding: Jackson Newhouse, our shithead neighbour**
 
 She cracks open a beer, swings herself off her desk chair, and drops herself onto the couch sofa right next to the desk, at a right angle to it, letting the small subject line fume silently at the middle of her monitor. She has a long, several sips. She imagines possible repercussions and accusations and escalations and whether there was likely to be actual resolutions in any of it. 
 
@@ -100,9 +98,9 @@ Jackson, though, is all bark, and no bite - acted out *or* implied. Ani has corn
 
 Jackson likes complaining about every person he meets - except himself - and thinks his life is a chore and his neighbours are stealing his mail and only *his* music is worth hearing through the hallways and dogs are the devil and the military has given them all the Internet so it could spy on everybody, and anybody who doesn't look like him and talk like him is probably up to something. 
 
-He calls everybody bad names, mostly under his breath, but not always. If you give Jackson a particular kind of look, he'll break eye contact. As tiny as Ani is, she thinks she could probably take Jackson down if he had to. Some days, she wouldn't mind trying. She's not worried about Lynda's safety - she's just impatient for Lynda to get on with the rest of her life. She doesn't know Lynda that well. She just knows Jackson Young is still choosing to be a loser.
+He calls everybody bad names, mostly under his breath, but not always. If you give Jackson a particular kind of look, he'll break eye contact. As tiny as Ani is, she thinks she could probably take Jackson down if he had to. Some days, she wouldn't mind trying. She's not worried about Lynda's safety - she's just impatient for Lynda to get on with the rest of her life. She doesn't know Lynda that well. She just knows Jackson Newhouse is still choosing to be a loser.
 
-Jackson Young is the scapegoat Ani needs to get out of her lease. He deserves it anyway. Lynda needs to move on. Somehow, Ani will manage both of their problems at once, in one well-written letter. Somehow. She'll figure it out. She just needs to think. But first, she needs to vent. She downs the rest of her beer and gets back to the desk.
+Jackson Newhouse is the scapegoat Ani needs to get out of her lease. He deserves it anyway. Lynda needs to move on. Somehow, Ani will manage both of their problems at once, in one well-written letter. Somehow. She'll figure it out. She just needs to think. But first, she needs to vent. She downs the rest of her beer and gets back to the desk.
 
 She writes a few drafts of the first paragraph, trying to get the tone right. 
 
@@ -110,15 +108,15 @@ The first draft starts like this:
 
 *Dear Condo Committee,*
 
-*Regarding the loud argument in the stairwell last Friday, and the accusations levelled against me by Mr. Young:*
+*Regarding the loud argument in the stairwell last Friday, and the accusations levelled against me by Mr. Newhouse:*
 
 This is enough of being professional. It's just the first draft. Ani has all afternoon. She keeps typing.
 
-*Insults out of Jackson Young's mouth are like air out of an asshole - they're a lot of rotten noise, and don't mean shit.*
+*Insults out of Jackson Newhouse's mouth are like air out of an asshole - they're a lot of rotten noise, and don't mean shit.*
 
-The insult's a bit awkward, and poorly placed, but it does its job for her. She says it out loud a few times, to the computer screen, like she's talking to Jackson Young, and there's lots of people around to hear her finally say what most of them are probably thinking, and Jackson Young can't look Ani in the eye, and he doesn't say anything back:
+The insult's a bit awkward, and poorly placed, but it does its job for her. She says it out loud a few times, to the computer screen, like she's talking to Jackson Newhouse, and there's lots of people around to hear her finally say what most of them are probably thinking, and Jackson Newhouse can't look Ani in the eye, and he doesn't say anything back:
 
-"Jackson Young, insults out of you - out of your mouth are like - they're like air out of your asshole. They're rotten noise and it doesn't mean shit."
+"Jackson Newhouse, insults out of you - out of your mouth are like - they're like air out of your asshole. They're rotten noise and it doesn't mean shit."
 
 "Words out of your mouth are like insults -"
 
@@ -126,17 +124,17 @@ The insult's a bit awkward, and poorly placed, but it does its job for her. She 
 
 "Insults out of your mouth are like - air out of your asshole - they're just rotten noise, really, and they don't mean shit."
 
-She changes the background in her mind, running through the scenario where she says those words - then tougher, tighter versions of them - about Jackson Young, and Jackson never looks Ani in the eye while she's saying this, and he never says shit back to her, and never invades her personal space, and everybody's on Ani's side and backing her up and nodding and a couple are even clapping, because Ani's got bigger balls than Jackson Young. 
+She changes the background in her mind, running through the scenario where she says those words - then tougher, tighter versions of them - about Jackson Newhouse, and Jackson never looks Ani in the eye while she's saying this, and he never says shit back to her, and never invades her personal space, and everybody's on Ani's side and backing her up and nodding and a couple are even clapping, because Ani's got bigger balls than Jackson Newhouse. 
 
-She wishes she had a mirror right there, so she could practice looking more bad-ass. She changes the background in her mind, running through the same scenario where she says those words about Jackson Young, and Jackson never looks Ani in the eye and never says shit back to her, and everybody's on Ani's side, because she's got bigger balls than Jackson Young ever will. 
+She wishes she had a mirror right there, so she could practice looking more bad-ass. She changes the background in her mind, running through the same scenario where she says those words about Jackson Newhouse, and Jackson never looks Ani in the eye and never says shit back to her, and everybody's on Ani's side, because she's got bigger balls than Jackson Newhouse ever will. 
 
-She wishes she had a mirror right there - so she could tell Jackson Young to stop being such a shithead - and look at herself while she's standing up for something, and see a bad-ass that nobody would ever mess with looking right back at her.
+She wishes she had a mirror right there - so she could tell Jackson Newhouse to stop being such a shithead - and look at herself while she's standing up for something, and see a bad-ass that nobody would ever mess with looking right back at her.
 
-Her hands are still a bit warm and not shaking any more, and she's imaging all the set piece scenarios - hallways, dining room tables, office lunch areas, shopping malls, restaurants, deserted islands, space stations - where she's telling Jackson Young to go to hell. 
+Her hands are still a bit warm and not shaking any more, and she's imaging all the set piece scenarios - hallways, dining room tables, office lunch areas, shopping malls, restaurants, deserted islands, space stations - where she's telling Jackson Newhouse to go to hell. 
 
 Because she can't tell Bull to go to hell, any more than she can tell him to just go home, and stay there. She's even said please before. Nothing ever works.
 
-She knows all this vitriol won't make it into her final draft, of course, so continues typing in this vein, down the Dark Path for several more paragraphs, pouring out her soul at the soulless World Wide Web, intellectually eviscerating poor Jackson Young, the ultimate victim and scapegoat, voicing her own anger sideways at the undeserving father of her child, to a condo committee she needs to part ways with quickly. 
+She knows all this vitriol won't make it into her final draft, of course, so continues typing in this vein, down the Dark Path for several more paragraphs, pouring out her soul at the soulless World Wide Web, intellectually eviscerating poor Jackson Newhouse, the ultimate victim and scapegoat, voicing her own anger sideways at the undeserving father of her child, to a condo committee she needs to part ways with quickly. 
 
 The modest speed at which she is able to actually type all of this makes her soon bored of listening to herself slow sputter and fume and smoulder and spin and rage at the state of the world around her. She stops typing for a moment, and just listens to the sound of her daughter Johnny lightly snoring in the next room. She gets a kick out of calling her daughter Johnny. It helps her get her humour back.
 
