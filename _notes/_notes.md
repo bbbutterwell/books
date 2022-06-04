@@ -46,4 +46,4 @@ Talk about the Gnomes
 
 ---
 
-Bull shatters his hand on Norm's face, when Norm realizes Maeve's going to live a long time on the island.
+Ani and Maeve when she's young, about a bug squashed flat: "as long as you're kind"
