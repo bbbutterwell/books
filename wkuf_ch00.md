@@ -1,14 +1,14 @@
 <hr><small><span xmlns:dct="http://purl.org/dc/terms/" property="dct:title"><i>Witches & Knights & Unicorn Fights</i></span> by <a xmlns:cc="http://creativecommons.org/ns#" href="https://github.com/bbbutterwell/book" property="cc:attributionName" rel="cc:attributionURL">BB.Butterwell</a> is licensed under a <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/">Creative Commons Attribution-ShareAlike 4.0 International License</a></small><hr/>
 
-*updated 2022-05-28*
+*updated 2022-06-05*
 
 **A disclaimer on the Author's style, from the Editor:** 
 
 *Let the Reader be advised:*
 
-*Every fourth chapter, the Author will indulge in the use of footnotes.[^footnotes] Readers are welcome to  follow these things as they're found, read them all together at the end, or ignore them entirely. The choice is naturally theirs.*
+*Every fourth chapter, the Author will indulge in the use of footnotes.[^footnotes] Readers are welcome to follow these things as they are found, read them all together at the end, or ignore them entirely. The choice is naturally theirs.*
 
-*We promise the majority of chapters (those which are not of the every-fourth kind) will refrain  from footnotes altogether, instead exploring the elongation of exposition by other subjectively objectionable means - such as the famously avoidable run-on sentence - with liberal sprinklings of nonsensical syntaxes, questionable wordings, and peculiar punctuation. These things are to be found here and there, and all over the place.*
+*We promise the majority of chapters (those which are not of the every-fourth kind) will refrain  from footnotes altogether, instead exploring the elongation of exposition by other subjectively objectionable means - such as the famously avoidable run-on sentence - with liberal sprinklings of nonsensical syntaxes, questionable wordings, and peculiar punctuations. These things are to be found here and there, and all over the place.*
 
 *Whether, then, the Reader is a lover or a hater of footnotery or sundry other sorts of inappropriately extended prosery, they are either-way advised to expect some longish yammering and wandering within the pages to follow - to both love or to not, amidst the rambling records of this curious plot.*
 
