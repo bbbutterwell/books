@@ -18,7 +18,7 @@
 
 ## Prologue
 
-Harlii The Hooded Harbinger (who was a hooded rat, at that) was a *True Known Hero* in their Time. There were, naturally, many other hooded rats in the World who stood out in their own particular ways, of course, from all the rest. That's how the World goes, you know - not every hooded rat, or other mortal thing for that matter, is created altogether equal. Some have hoods, for example. Some become True Known Heroes. Some manage both things, and then other things as well.
+Harlii The Hooded Harbinger (who was a hooded rat, at that) was a *True Known Hero* in their Time. There were, naturally, many other hooded rats in the World who stood out in their own particular ways, of course, from all the rest. That's how the World goes, you see - not every hooded rat, or other mortal thing for that matter, is created altogether equal. Some have hoods, for example. Some become True Known Heroes. Some manage both things, and then other things as well.
 
 Every one of us, though, *is* created to become something considerably more than we started out as being. The choice is nonetheless ours to decide, after our creation has occurred. 
 
@@ -28,7 +28,7 @@ And, as it happens, they then *did* choose to be one... and now here you and I b
 
 Or at least, not *this* one, which is Harlii's... and now is yours as well.
 
-For this to have happened at all - for Harlii to have become the True, Known, Harbinging, Hooded Hero which they did, which then caused you and I to meet like this - they first had to *believe* that this was even possible at all - even for one, single moment. Just one. 
+For this to have happened at all - for Harlii to have become the True, Known, Harbinging, Hooded Hero which they had, which then caused you and I to meet like this - they first had to *believe* that this was even possible at all - even for one, single moment. Just one. 
 
 Belief in yourself doesn't need much of a window, you know, to get its foot squarely in your door. Then it's all over for you, but also begun: you've managed to see, and cannot then *un*-see, the True Hero that you might someday become. 
 
@@ -36,7 +36,7 @@ Maybe. There's always that *maybe*; the choice still has to be one's own, to mak
 
 So how then did Harlii come to be Truly Known as the *Hooded Harbinger of Foggy Hollows*, anyhow, you might ask. Well, I'll tell you a little bit. It took them traveling to a town on the Very Verge of Despair, on exactly the right wrong afternoon, and bearing no noteworthy news at all, to earn that title, fair and square. Then they became The Greatest Harbinger Ever Known. 
 
-And this is where you will encounter your first footnote, if you wish to know more about the Very Verge of Despair, and other curious things. You may of course ignore the tiny numeral to the right of the Verge of Despair [^vergeOfDespair], and instead continue reading the narrative unbroken, so that the story might flow a bit better. It depends on how your mind works best, when it comes to receiving ideas, and I can't know what that is, since it's your mind, and not mine. This is up to *you* - it's your story now. Now let's move on.
+And this is where you will encounter your first footnote *[actually, the second -Ed.]*, if you wish to know more about the Very Verge of Despair, and other curious things. You may of course ignore the tiny link to the right of the Verge of Despair, [^vergeOfDespair] and instead continue reading the narrative unbroken, so that the story might flow a bit better. It depends on how your mind works best, when it comes to receiving ideas, and I can't know what that is, since it's your mind, and not mine. This is up to *you* - it's your story now. Now let's move on.
 
 The Folk of Foggy Hollows (the town on the Very Verge, of which I speak), never needed more news, back then. It was a town quite known already for having had too much of that: *more news*. 
 
@@ -44,7 +44,7 @@ When the Great Change began creeping from the North and West, in the Year of the
 
 Shops closed (possibly "for good", again), people hammered extra boards across their shuttered windows (the town's old Window Boarder was always doing well, in spite of occasional spells of relative calm), and visitors to town were ominously told, once more, they had *best leave, before it was too late*. That's the kind of place Foggy Hollows was. The name too, really, should have been a clear clue. 
 
-To *those* Folk, at least, news had only ever arrived as one sort alone: the very worst sort. Harbingers, therefore, were welcomed with that same sentiment - for who would ever want a bearer of news showing up, anyway, when news was known to never be good? 
+To *those* Folk, at least, news had only ever arrived as one sort alone: the very worst sort. Harbingers, therefore, were welcomed with that same enthusiasm - for who would ever want a bearer of news showing up, anyway, when news was known to never be good? 
 
 There were signs at all the approaches to town, in fact, which read: **No more news required - Harbingers need not approach.** None in the town had ever thought for a moment that news might be anything other than wholly unwelcome. I think you get the idea. 
 
@@ -72,10 +72,10 @@ I hope you enjoy following the entangled tales of Maevis (Mae-Bee) Morgan and Ha
 
 [^realmsOfFolk]: The Realms of Folk are where the Folk live.[^folk] 
 
-[^folk]: "Folk" are People, and then any species which Folk eventually deem to be sufficiently People-like, and therefore worthy of being called Folk. If you think about this, this means Folk could be anyone, or anything. But this is not yet how it was, in the Isles of which we now speak. 
+[^folk]: "Folk" are People, and then any species which Folk eventually deem to be sufficiently Folk-like, and therefore worthy of being called Folk. If you think about this, this means Folk could be anyone, or anything. But this is not yet how it was, in the Isles of which we now speak. 
 
 [^isleOfNought]: The Isle of Nought was where the Nought is rumoured to have begun to be so insatiably Spun. More on this phenomenon at some much later time - we are destined to need to deal with it at some future point. So say the Prophecies.
 
-[^greatChange]: The Great Change is an event of Worlds-altering relevance, which began as a rather sudden encroachment of the Seas, on the border regions of the Realms of Folk, which brought with it no small amount of trouble - including, as you might surmise of a world filled with dungeons and subterranean labyrinths and entire kingdoms of caverns, no small number of very *un*-Folk-like refugees of previously unsettling disposition. The Great Change was not at the time considered anything Great, by nearly anyone at all (except, of course for the Chaos Warlocks [^chaosWarlocks]).
+[^greatChange]: The Great Change is an event of Worlds-altering relevance, which began as a rather sudden encroachment of the Seas, on the border regions of the Realms of Folk, which brought with it a tide of trouble - including, as you might surmise of a world filled with dungeons and subterranean labyrinths and entire kingdoms of caverns, no small number of very *un*-Folk-like refugees of previously unsettling disposition. The Great Change was not at the time considered anything Great, by nearly anyone at all (except, of course for the Chaos Warlocks  [^chaosWarlocks]).
 
-[^chaosWarlocks]: Chaos Warlocks always love when things go thoroughly sideways, it seems... but I am quite digressing.
+[^chaosWarlocks]: Chaos Warlocks always love when things go thoroughly sideways, it seems... but I am quite digressing. Let's move on.
