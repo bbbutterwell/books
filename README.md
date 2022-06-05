@@ -16,13 +16,9 @@
 
 *Which of our narrators will untangle this curious knot, by bravely and surely advancing the plot?*
 
-
-
 (Contains some swearing)  
 
 [participant in the [Royal Road's April Writathon](https://www.royalroad.com/blog/46/join-aprils-fun-events)]
-
-
 
 There is no chapter numbered 12. Do not fear, this is intentional. I'll explain later, maybe.
 
@@ -36,9 +32,9 @@ I hope you enjoy it.
 
 -BB
 
-
-
 <a href='https://ko-fi.com/T6T8BCPTV' target='_blank'><img height='36' style='border:0px;height:36px;' src='https://cdn.ko-fi.com/cdn/kofi5.png?v=3' border='0' alt='Support me at ko-fi.com' /></a>
+
+Or on [PayPal](https://www.paypal.com/donate/?hosted_button_id=JWBN74JKLM3B2)
 
 ---
 
