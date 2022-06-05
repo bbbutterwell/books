@@ -2,7 +2,7 @@
 
 ## How to Approach a Darkness
 
-*updated 2022-06-04*
+*updated 2022-06-05*
 
 Ani Esther Morgan considers how to begin this latest letter, which she intends to send by electronic mail to the condo committee just before the weekend, when she and Maevis and the dog will be far away in a family campground, cooking up the last of their veggie patties and making up games with Monopoly money.
 
@@ -20,11 +20,11 @@ Then she changes the subject line to:
 
 **Regarding our neighbour, Jackson Newhouse, the shithead**
 
-She tries changing the *the* to an *a*, to see whether that feels more or less accurate, if she were being completely honest:
+She tries changing the *the* to an *a*, to see whether that reads better:
 
 **Regarding our neighbour, Jackson Newhouse, a shithead**
 
-That doesn't seem to make it any better, somehow. Then:
+That doesn't seem to make it any better. Then:
 
 **Regarding Jackson Newhouse, our shithead neighbour**
 
@@ -154,7 +154,7 @@ Because she's got bigger balls than Jackson Newhouse ever will.
 
 She picks up the can and keeps practicing being brave and angry and fed-the-fuck up, slowly crumpling beer-can Jackson.
 
-Her hands are cold again, but at least not shaking any more, and she's imaging all these set-piece scenarios for her stand-off with Jackson Newhouse - hallways, dining room tables, office lunch areas, shopping malls, restaurants, cruise ships, deserted islands, space stations - where she's telling Jackson Newhouse to go to hell.
+Her hands are cold again, but at least not shaking any more, and she's picturing all these set-piece scenarios for her stand-off with Jackson Newhouse - hallways, dining room tables, office lunch areas, shopping malls, restaurants, cruise ships, deserted islands, space stations - where she's telling Jackson Newhouse to go to hell.
 
 Because she can't tell *Bull* to go to hell, any more than she can tell him to just go home, and stay there. She even said *please* once. Bull doesn't know about *please*. He finds the idea of *please* amusing. Ani wishes she could take the *pleases* all back. It was a low moment, but she had to try.
 
@@ -192,7 +192,7 @@ The fox had never caught a Gnome either, that I Gnew about... but who Gnows, may
 
 Now Olive's suddenly too cool to believe in Gnomes anymore. Just like that. Whatever, I've never needed to be cool. I'll keep believing in Gnomes till the cows come home. I don't care about what's cool.
 
-Olivia wasn't saying anything, after snuffing about the Gnomes. That's OK. I was just happy sitting there and imaging she and I someday being old ladies together, sitting just like that, like I knew we would. We were close enough in age, that once we got really old, nobody would probably even know who was the older one. I'm not in a hurry to grow up, exactly, but I also kind of couldn't wait to get old then, all the same.
+Olivia wasn't saying anything, after snuffing about the Gnomes. That's OK. I was just happy sitting there and imagining she and I someday being old ladies together, sitting just like that, like I knew we would. We were close enough in age, that once we got really old, nobody would probably even know who was the older one. I'm not in a hurry to grow up, exactly, but I also kind of couldn't wait to get old then, all the same.
 
 After a while, Olive said I don't want to go back to school, and I shrugged and said OK, but I wasn't in charge of that. She knew it. She knew that I knew that she didn't want to go back to school. Message received. I didn't ask why. I was trying a thing.
 
