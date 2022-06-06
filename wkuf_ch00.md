@@ -2,7 +2,7 @@
 
 *updated 2022-06-05*
 
-![](/Users/bbbutterwell/Documents/ButterwellPress/GitHub/book/_img/harlii_00.jpg)
+![](./_img/harlii_00.jpg)
 
 **A disclaimer on the Author's style, from the Editor:** 
 

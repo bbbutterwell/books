@@ -4,7 +4,7 @@
 
 *updated 2022-06-05*
 
-![](/Users/bbbutterwell/Documents/ButterwellPress/GitHub/book/_img/wkuf-ch01.jpg)
+![](./_img/wkuf-ch01.jpg)
 
 My name is Maevis Morgan, but you can call me Maeve, and I'm here to tell you a story. I guess I'm probably here for other things, but I'm here to tell you a story too. You might be wondering what the story is. I'm sort of wondering that also. I mean, I just learned pretty recently that I had to tell it. I was told that if I didn't, well, who would? The voice had a fair point, I suppose.
 
