@@ -47,3 +47,11 @@ Talk about the Gnomes
 ---
 
 Ani and Maeve when she's young, about a bug squashed flat: "as long as you're kind"
+
+---
+
+Chap 14: add editor note about the swearing
+
+Chap 01: Maeve later wonders why she followed the voice's prompt to get out of the way. What was the reason for that?
+
+Chap01: A reason being good doesn't mean it will get made. It might be a matter of caring about what is good to begin with - which lets you recognize that when you see it. 
