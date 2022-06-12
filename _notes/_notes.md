@@ -55,3 +55,13 @@ Chap 14: add editor note about the swearing
 Chap 01: Maeve later wonders why she followed the voice's prompt to get out of the way. What was the reason for that?
 
 Chap01: A reason being good doesn't mean it will get made. It might be a matter of caring about what is good to begin with - which lets you recognize that when you see it. 
+
+---
+
+Pulled from ch10: So that's why Norm's a madman for ever driving across the causeway, even at low, low tide, and on a clear day, which are the only times he ever does, mostly. But he still does. Nobody really likes it much, that he does that. We just pretend he's being nothing but a harmless dumb-ass, and nothing bad can ever happen to dumb-asses.
+
+---
+
+ch 15: 
+
+Maeve starts writing her story, instead of using the tape recorder. Olive asks her what she's doing. They talk about telling stories. the wind picks up in the shed, they talk about Gnomes, and spirits. Maeve gives Olive a notebook and some pens.

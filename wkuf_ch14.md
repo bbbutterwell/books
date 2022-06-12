@@ -176,7 +176,7 @@ She also prints a copy on her old dot-matrix, fantasizing about dropping it in J
 
 ---
 
-Olivia didn't say much that whole time we were getting our stuff set up for that night, in the New Old Shed - just the essential stuff, like asking how to light an oil lamp again, and which sleeping bag was bigger. She wasn't sure, even after I showed her that the red one was. Not much else was said.
+Olivia didn't say much that whole time we were getting our stuff set up for later that night, in the New Old Shed - just the essential stuff, like asking how to light an oil lamp again, and which sleeping bag was bigger. She wasn't sure, even after I showed her that the red one was. Not much else was said.
 
 I'm sort of used to that, with Olive. She's always been pretty quiet. That's OK. When she was younger, she would often sometimes sing for no reason. Not all the time - just at particular times. Olivia would be quiet for long stretches - maybe days - and then out of nowhere, she'd hum this tune, or sing some words in a string, like she'd been thinking about doing it all that time that she had been quietly composing, and then all the sudden, it was time to do it, and then she'd just do it.
 
@@ -192,11 +192,11 @@ The fox had never caught a Gnome either, that I Gnew about... but who Gnows, may
 
 Now Olive's suddenly too cool to believe in Gnomes anymore. Just like that. Whatever, I've never needed to be cool. I'll keep believing in Gnomes till the cows come home. I don't care about what's cool.
 
-Olivia wasn't saying anything, after snuffing about the Gnomes. That's OK. I was just happy sitting there and imagining she and I someday being old ladies together, sitting just like that, like I knew we would. We were close enough in age, that once we got really old, nobody would probably even know who was the older one. I'm not in a hurry to grow up, exactly, but I also kind of couldn't wait to get old then, all the same.
+Olivia wasn't saying anything, after snuffing about the Gnomes. That's OK. I was just happy sitting there and imagining she and I someday being old ladies together, sitting just like that, like I knew we would. We were close enough in age, that once we got really old, maybe nobody would even know who was the older one, and maybe they'd think we were sisters. I'm not in a hurry to grow up, exactly, but I also kind of couldn't wait to get old then, all the same.
 
 After a while, Olive said I don't want to go back to school, and I shrugged and said OK, but I wasn't in charge of that. She knew it. She knew that I knew that she didn't want to go back to school. Message received. I didn't ask why. I was trying a thing.
 
-And the fox was there then, all at once, leaping through the grass down in the orchard, all through the elder Apples - Olive made a small sound, oh, and got real still, and I didn't dare say or do anything else at all. Neither of us moved or said anything else. 
+And then the fox was there, all at once, leaping through the grass down in the orchard, all among the elder Apples - Olive made a small sound, oh, and got real still, and I didn't dare say or do anything else at all after that. Neither of us moved or said anything else at all. 
 
 I just sat still, and let the fox and Olive have their moment, and I let the wind begin to shimmer.
 

@@ -2,7 +2,7 @@
 
 ## Kindly Knights & Apple Pie
 
-*updated 2022-05-19*
+*updated 2022-06-11*
 
 Normand is standing outside the upstairs sewing room, about to knock on the door, which is entirely closed. There's a paper sign stuck to it with too much masking tape. The masking tape looks like it's been recycled from some other projects - all torn up and bent out of shape. The sign, which is on lined paper and written in red marker, says, "**Gone Curling. Go away.**"
 
@@ -144,7 +144,7 @@ Still holding the pie plate level, like an expert, Maeve sits up and wiggles her
 
 It's very good.
 
-The sound of Normand and Claudette talking in low voices downstairs is calming. Normand isn't mad at Maeve, she knows that. He never stays mad at her for long anyway, and even when he is, he's always pretty half-assed about it, and then feels bad almost right away.  And Claudette has never gotten mad at Maeve once, that she ever knew about anyway. Maeve wouldn't even know what that would feel like, having Claudette mad at her. Olivia's been mad at everybody and everything since she turned eleven, so Maeve doesn't take that personally, she remembers what it's like to be eleven, going on thirteen. 
+The sound of Normand and Claudette talking in low voices downstairs is calming. Normand isn't mad at Maeve, she knows that. He never stays mad at her for long anyway, and even when he is, he's always pretty half-assed about it, and then feels bad almost right away.  And Claudette has never gotten mad at Maeve once, that she ever knew about anyway. Maeve wouldn't even know what that would feel like, having Claudette mad at her. Olivia's been upset at everybody and everything since she turned eleven, so Maeve doesn't take that personally, she remembers what it's like to be eleven, going on thirteen. 
 
 So why does it feel like everybody is mad at her, then? There's only one person who's mad at her. That person just feels like everybody to her right now, that's all.
 
