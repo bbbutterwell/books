@@ -4,6 +4,8 @@
 
 *updated 2022-06-12*
 
+![](/Users/bbbutterwell/Documents/ButterwellPress/GitHub/book/_img/wkuf-ch02.jpg)
+
 **Regarding the Dog:**
 
 *Dear Reader:*
