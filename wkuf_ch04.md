@@ -2,7 +2,7 @@
 
 ## Assignment
 
-*updated 2022-06-16*
+*updated 2022-06-17*
 
 *From the Archive of the Compendium Allegoriian, WoM99+*
 
@@ -40,7 +40,7 @@ All told, there were nearly three-hundred Observators in the ranks of the HHOO -
 
 ---
 
-*Bardlii Noonstar awakens again, as he has every morning of his life: he sits upright, opens his eyes, and remarks to the room he is in, "What a curious dream."* 
+*Bardlii Noonstar awakens again, as he has every morning of his life: he sits upright, opens his eyes, and remarks to the room he is in, 'What a curious dream.'* 
 
 *The room is chilly, mostly dark, silent, and nearly empty of furniture, save for the stone-firm cot he is sitting upright upon, a small desk and chair, and a row of pegs upon the wall opposite that, where some clothing is hung. This is how the room had been the previous night - there appear to be no surprises. Bardlii is wearing his knee-length, burlap sleeping shift, and is half-under a thin wool blanket, which he does not require, but has chosen to wake up beneath anyhow.*
 
@@ -48,7 +48,7 @@ All told, there were nearly three-hundred Observators in the ranks of the HHOO -
 
 *Bardlii always choses to awake at precisely seven hours and seven moments before noon. This affords him time to dress, and some seven hours to do some work, before the bells of the City begin to sound - when he will be compelled to curl himself into a ball until the clanging (and the waves of panic which accompany it) subside. After this, he will be afforded seven more hours (less whatever time he has taken cowering that noontime) to do some additional work, before then going to sleep for (somewhat) seven more hours. This, he has repeated nearly every day of his life, for at least the past four years.* [^lengthOfDays]
 
-*"Hello?" Bardlii adds, but of course, nobody is there. There is a gentle blue wimlight illuminating the room just enough that he can see the outlines of things. It has grown slightly brighter upon hearing his voice. There is nobody here.*
+*'Hello?' Bardlii adds, but of course, nobody is there. There is a gentle blue wimlight illuminating the room just enough that he can see the outlines of things. It has grown slightly brighter upon hearing his voice. There is nobody here.*
 
 *Today is his 27-Count Day.*  
 
@@ -72,7 +72,7 @@ All told, there were nearly three-hundred Observators in the ranks of the HHOO -
 
 *The construction of the Trunk from inside it tells the tale of ancient men in competition to be the first to build the highest tower upon the Realm's most enchanted mountain - the Old Father Mound. In the end - high above - they chose at last to call it a truce, turning their attentions away from rivalling architectures and toward political maneuvers instead, in continuous contest for the key to controlling all of that spent toil and untapped power. At the very top, the immense Eyes and Ears of Owl are perched, soaring higher still, though in this pre-dawn light, they remain unseen from down below, except as vague, immense, and ominous silhouettes.*
 
-*Torch light and wimlight intermingle from hundreds of inward-facing windows from the many levels of the seventeen main tower columns, forming a flickering firmament around Bardlii. The space betwixt the inward-leaning towers is criss-crossed with dozens of overlapping walking bridges connecting various ministries to various others, all the way up. Bardlii takes one of these from the wide balcony, which connects the middle levels of Ministry of the Observators - where he presently works, to that of the Arbiters across the Inner Trunk. He passes several Ministry folk along the way. He always nods to every one, sometimes adding a "good morning" or occasionally a "nice to see you again".* 
+*Torch light and wimlight intermingle from hundreds of inward-facing windows from the many levels of the seventeen main tower columns, forming a flickering firmament around Bardlii. The space betwixt the inward-leaning towers is criss-crossed with dozens of overlapping walking bridges connecting various ministries to various others, all the way up. Bardlii takes one of these from the wide balcony, which connects the middle levels of Ministry of the Observators - where he presently works, to that of the Arbiters across the Inner Trunk. He passes several Ministry folk along the way. He always nods to every one, sometimes adding a 'good morning' or occasionally a 'nice to see you again'.* 
 
 *An Executor rumbles by him at the midway point of the bridge - six arms tall, a wide golem of intricately assembled iron and stone - and Bardlii, following strict protocol, says nothing to it, and makes no eye contact with it myriad, unblinking lenses.* 
 
@@ -98,7 +98,7 @@ All told, there were nearly three-hundred Observators in the ranks of the HHOO -
 
 *The Rightmost, a tall, elder woman with a great nose and spectacles to rival it looks up from her paperwork as Bardlii closes the door. The Leftmost, a short, middling-aged man with commendable ears and a chin that always seems to be hiding from danger, remains writing in his book, as though neither person is there.*
 
-*"That's enough, Fenrii", says the Leftmost - Master Observator Ogilveii - without looking up from his writing, "Noonstar is now in the room, your narrative is no longer needed for the Record."*  
+*'That's enough, Fenrii.' says the Leftmost - Master Observator Ogilveii - without looking up from his writing, 'Noonstar is now in the room, your narrative is no longer needed for the Record.'*  
 
 Young Fenrii, seated somewhat unseen against the wall directly beneath the immense window, faltered in his narration of that present moment, his quill hanging over his ledger, and the elder woman to his right (Bardlii's left) added, "...and I am unsure as to precisely what the nature of my nose has anything at all to do with the matters at hand.... Not that it matters. But still." Master Observator Vist fussed with her sleeves, a thing she did when she found herself flustered. 
 
