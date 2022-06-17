@@ -132,7 +132,7 @@ Bardlii had not. "The Short Account? It's been on hiatus for years."
 
 Bardlii remembered following the Short Account during his younger years. He had memorized the list, which was last updated not long after his 43rd count Day. "I always enjoyed following the Account. Wondering what heroics all of the best Heroes of the Realms were up to."
 
-Fenrii is almost too young to remember that time. He has been more a follower of the Long Account, truth be told.
+*Fenrii is almost too young to remember that time. He has been more a follower of the Long Account, truth be told.*
 
 "Fenrii, you can leave now." Ogilveii said.
 
