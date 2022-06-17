@@ -10,9 +10,9 @@
 
 *When I asked the Author at which point our hero might appear, they simply told me they were waiting for Maevis Morgan to get to that part. This is not really how books are written. This is what I told the Author - and we bickered for a while and finally I put my foot down and told them that the rat needed to appear before the end of chapter 4, and certainly no later. The Author was not happy about this, but eventually capitulated, and so now that's what happens, just near the end.*
 
-*Who exactly is creating this story? Is it the Author, Maevis Morgan, or myself? And how long do we intend to proceed with drawing out its set up? I cannot say. We all want the hero to get on with the heroics, and the villain to show up, to get in their way, by threatening somebody. I'm only supposed to be here to observe and seek out typographic anomalies and continuity errors, not tell the Author that the book's hero is missing. In any case, I believe we're back on track.*
+*Who exactly is creating this story? Is it the Author, Maevis Morgan, or myself? And how long do we intend to proceed with drawing out its set up? I cannot say. We all want the hero to get on with the heroics, and the villain to show up, to get in their way, by threatening somebody or something. I'm only supposed to be here to observe and seek out typographic anomalies and continuity errors, not tell the Author that the book's hero is entirely missing. In any case, I believe we're back on track.*
 
-*Though I have no idea what any of these characters you are about to meet have to do with anything Ms. Morgan has been telling us so far.*
+*Though I have no idea what any of these characters you are about to meet have to do with anything Ms. Morgan has been telling us so far.*..*
 
 ---
 
