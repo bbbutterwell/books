@@ -1,3 +1,5 @@
+Birds & Bees
+
 Once upon a time, at the tail end of a too-short Winter, there was an old woman sitting on a bank by the ocean - the one which had surrounded her and her home for much of her life, and which she had come to both fear and love in equal measure, as was befitting a woman regarding the sea, which always was and would be far greater than she. 
 
 The chill, gentle wind was the tail of this, her last cold season, and it tried in vain to bite at her through her many well-loved layers, but only her rosy cheeks felt it at all - though more like a kiss, not cold at all. She loved herself some scarves, and could never wrap herself in enough of them these days - they whipped lazily about her face, as she squinted out at the grey and slowly heaving waters of the Bay. She was capped with three hats, at least, overlaid, and then a bundled coat, and boots large enough for all those extra fuzzy socks - all the ones which she could manage to find, and fit on  - and then all those other layers of leggings and ankle-length skirts and worn sweaters and long underwear and other things. Not to mention the mittens upon mittens... one might easily imagine all of that, with a warm, old woman inside, I'll wager, on a wonderful Winter morning.
@@ -44,9 +46,17 @@ The fox wasn't there anymore - it had hopped away somewhere out of sight. I don'
 
 ---
 
-
-
 directions:
+
+Talk about Bee and birds
+
+Olive asks Maeve why she was born. Maeve senses something stirring, she doesn't want Olive to get spooked. She starts a frank conversation between generations, about big topics. Normand and Claudette hear about this and confront Maeve, but Maeve isn't exactly Olive's parent, and she's not exactly her sister. What are they going to talk about, that matters to both of them?
+
+Bee is who they talk about - and then the elders and the histories and the island, and then what it means to say the future.
+
+When does the Game start? 
+
+
 
 - Ani & Normand playing Super Chess
 
