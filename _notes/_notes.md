@@ -4,6 +4,10 @@ Bee's problem with Dogs - Isles?
 
 Who are Princess, Knight, and Unicorn?
 
+How did Ani get the magic couch back? Lynda rescued it.
+
+How long has Maeve lived on the island? When did she come to live there full time?
+
 The four books are Maeve's four seasons:
 
 - **Spring** - Starts in Summer, is Bee's Autumn
@@ -42,7 +46,7 @@ Maeve knows that everybody in the whole world must have a reason for being. She'
 
 Maeve wonders if maybe the people who chose no were forced to come here anyway, and that's what a villain is. Or maybe that's where victims come from. She's asked Liz? What did Liz say?
 
-Mention TooToonies
+TooToonies - Ani started it, and Norm worked there as a cashier. Norm wanted to call it TwoLoonies but Ani thought that was being insensitive to people with mental health issues, but then Norm said she was being insensitive for drawing the comparison - he meant the two of them were the Loonies. Ani just repeated her objection. They decided two dollars per item wasn't enough flexibility anyway, and besides, it was Toonies Ani had found in the couch, not Loonies. Then they argued over the spelling : TwoToonies vs TooToonies. Which one won, and why?
 
 Talk about the Gnomes
 
