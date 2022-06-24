@@ -6,7 +6,7 @@
 
 *The other day, a voice told her to tell her own story... but she's not so sure just where to start, or quite when to stop.*
 
-*Maeve Morgan just wants to be left alone on her island, to shingle her roof, and maybe catch a Gnome someday.  *
+*Maeve Morgan just wants to be left alone on her island, to shingle her roof, and maybe catch a Gnome someday.*
 
 *Meanwhile, in another Timeline...*
 
