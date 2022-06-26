@@ -4,6 +4,8 @@ Bee's problem with Dogs - Isles?
 
 Who are Princess, Knight, and Unicorn?
 
+IN ch 06, Maeve mentions Ani's hiking shoes. She uses these to start exploring the island when she's fifteen (Ani has small feet)
+
 How did Ani get the magic couch back? Lynda rescued it.
 
 How long has Maeve lived on the island? When did she come to live there full time?
