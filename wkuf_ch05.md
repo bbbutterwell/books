@@ -4,7 +4,7 @@
 
 *updated 2022-06-23*
 
-The barn cats are always bringing me dead rats and mice and birds. Sometimes a small snake. I get two or three scritter kills a week, some seasons - I never go a week it seems without at least one of them showing up somewhere unexpected. I'm never amused. I had hamsters when I was young and a turtle too and I'm fond of almost all small types of animals. And dogs of all sizes, but especially medium-sized ones. Horses scare me a bit, I'll admit, and cats mostly creep me out. 
+The barn cats are always bringing me dead rats and mice and birds. Sometimes a small snake. I get two or three scritter kills a week, some weeks - I never go a week it seems without at least one of them showing up somewhere unexpected. I'm never amused. I had hamsters when I was young and a turtle too and I'm fond of almost all small types of animals. And dogs of all sizes, but especially medium-sized ones. Horses scare me a bit, I'll admit, and cats mostly creep me out. 
 
 Don't go assuming I decided to be a dog person and not a cat person on purpose or anything. It's really just how these things happen. I grew up with a dog, not a cat. I know it's stupid, but I'm not a cat person, but I live on a island full of cats. Pretty full, anyway. There's probably thirty or more. Counting cats is no easier than herding them, so I don't really know for certain how many there really are any more. Maybe there's a hundred, I just couldn't say.
 
