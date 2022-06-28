@@ -1,5 +1,13 @@
 Add one or two instances of the voice.  
 
+- How to Approach a Darkness
+- When to Expect the Rain
+- Whether or Not to Make a Friend
+- Who
+- Why
+- What
+- Where
+
 Bee's problem with Dogs - Isles?
 
 Who are Princess, Knight, and Unicorn?

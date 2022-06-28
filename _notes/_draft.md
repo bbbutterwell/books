@@ -1,4 +1,4 @@
-Birds & Bees
+
 
 "Be *creative* and *helpful*, both at once. That's the assignment. I'm going for a smoke."
 
