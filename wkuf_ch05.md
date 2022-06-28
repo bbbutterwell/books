@@ -2,7 +2,7 @@
 
 ## Scritters & Folks
 
-*updated 2022-06-23*
+*updated 2022-06-28*
 
 The barn cats are always bringing me dead rats and mice and birds. Sometimes a small snake. I get two or three scritter kills a week, some weeks - I never go a week it seems without at least one of them showing up somewhere unexpected. I'm never amused. I had hamsters when I was young and a turtle too and I'm fond of almost all small types of animals. And dogs of all sizes, but especially medium-sized ones. Horses scare me a bit, I'll admit, and cats mostly creep me out. 
 
@@ -94,7 +94,7 @@ What's with all the unicorns, I asked Mom, while we were walking down the trail 
 
 Ani has tattoos, I should have mentioned that earlier, so you could imagine all the things I've told you so far but then include Mom having tattoos in them now. You can always go back and re-read this I guess, and add tattoos to Mom. She has tattoos all the way up both of her arms, and on the back of her neck, and a couple on her ankles and one I wasn't supposed to know about and am not supposed to talk about. I grew up being held by arms and shoulders that were full of beautiful tattoos.
 
-The tattoos are mostly pretty interesting, some are abstract, some look like vines, some look like chains, there are a couple of Star Wars ones, one I call BearBear, one with a giant robot from another movie, a couple I wish she would erase, and then this one of a unicorn. It's on her left forearm, jumping out of flowers, and it was her first, and it's always been my favourite tattoo. She spent a lot of money on it, but that's not why it's my favourite. Sometimes when she was rocking me to try and get me to sleep or settle down, when I was really little, I would reach out and boop the unicorn's nose on her arm. After a while, Mom got good at saying boop! right when I did that, and then eventually I would say boop! any time I booped the unicorn on my Mother Ani's beautiful arm. Sometimes, we would say boop! together.
+The tattoos are mostly pretty interesting, some are abstract, some look like vines, some look like chains, there are a couple of Star Wars ones, one of a bear, called BearBear, one with a giant robot from another movie, a couple I wish she would erase, and then this one of a unicorn. It's on her left forearm, jumping out of flowers, and it was her first, and it's always been my favourite tattoo. She spent a lot of money on it, but that's not why it's my favourite. Sometimes when she was rocking me to try and get me to sleep or settle down, when I was really little, I would reach out and boop the unicorn's nose on her arm. After a while, Mom got good at saying boop! right when I did that, and then eventually I would say boop! any time I booped the unicorn on my Mother Ani's beautiful arm. Sometimes, we would say boop! together.
 
 Ani has always loved unicorns. I didn't really know that until I went to stay with Bee though, and saw all the unicorns in the curio cabinet, and then later found Ani's old sketchbooks in the attics, once I stopped thinking that's where the ghost might hang out. The ghost doesn't like the attics, as it turned out. I think they're too spooky even for ghosts. 
 
