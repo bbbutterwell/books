@@ -2,7 +2,17 @@
 
 ## Departure
 
-*updated 2022-05-19*
+*updated 2022-06-17*
+
+**A reminder on the Author's style, from the Editor:**
+
+*Let the Reader be reminded:*
+
+*Every fourth chapter, the Author apparently intends to take us altogether elsewhere to some other place in some other plot - and in a differing style entirely - in spite of my repeated attempts to convince them to do otherwise. It is a common error of certain new Authors, in my own humble experience, to feel they need to try everything all at once, and in one place: every theme, every voice, every tense, and every idea. This is especially so, it seems, of those ones who have had too long to form opinions and thoughts of what things they might wish to say, prior to finally beginning to say them. An Editor can only intercede so much, and so, here we are. We will call it Speculative Fiction, and move on.*
+
+
+
+---
 
 *To Dagnett Bookniird,*
 
