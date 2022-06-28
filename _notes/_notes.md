@@ -10,6 +10,8 @@ Add one or two instances of the voice.
 
 Bee's problem with Dogs - Isles?
 
+There's a white cross at the bend on Mainland Road, across from the causeway gate
+
 Who are Princess, Knight, and Unicorn?
 
 IN ch 06, Maeve mentions Ani's hiking shoes. She uses these to start exploring the island when she's fifteen (Ani has small feet)
