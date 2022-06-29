@@ -8,6 +8,10 @@ Add one or two instances of the voice.
 - What
 - Where
 
+A scene of singing in the Morgan household, when the record player was around
+
+According to ch07, Maeve saw Bee being a great old lady on day 2. This is where Maeve first got the idea to be an old lady with Bee.
+
 Bee's problem with Dogs - Isles?
 
 There's a white cross at the bend on Mainland Road, across from the causeway gate
