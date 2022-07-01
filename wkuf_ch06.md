@@ -164,7 +164,9 @@ He picks up the Knight, and holds it aloft and Ani's eyes can't help but follow 
 
 Ani snorts, but is still frowning and there's tears and snot everywhere and she really wants to hit Norm, but she really loves unicorns too much and Normand can be such a jerk making her laugh when she just wants to be sad. "*What*?" she says, wiping her damn eyes on her damn shirt, "Get out *where*, you idiot? What are you ever *talking* about?" 
 
-Normand points the Knight-now-Unicorn straight at his sister and says, "Out into the *world*, to *kick ass*, you dumb-ass, like unicorns were *born to do*. Don't ever you forget what Unicorns were born to do."
+Normand points the Knight-now-Unicorn straight at his sister and says, "Out into the *world*, to *kick ass*, you dumb-ass, like unicorns were *born to do*. Don't ever you forget what Unicorns were born to do. Tell that boy to fuck off if you have to."
+
+Well, Ani's a damn unicorn, if there ever was one, and they both know it. She wipes her nose on her sleeve again and gives her brother a withering look. "Fuck off, Norm."
 
 ---
 
