@@ -8,6 +8,12 @@ Add one or two instances of the voice.
 - What
 - Where
 
+Maeve starts calling her Mom Mother Ani sometimes after meeting Uncle Norm.
+
+The Grandmother never married. 
+
+Who was the Grandfather (Bee's)? How old is that clock anyhow?
+
 A scene of singing in the Morgan household, when the record player was around
 
 According to ch07, Maeve saw Bee being a great old lady on day 2. This is where Maeve first got the idea to be an old lady with Bee.
