@@ -2,17 +2,17 @@
 
 ## Kindly Knights & Apple Pie
 
-*updated 2022-06-11*
+*updated 2022-07-05*
 
-Normand is standing outside the upstairs sewing room, about to knock on the door, which is entirely closed. There's a paper sign stuck to it with too much masking tape. The masking tape looks like it's been recycled from some other projects - all torn up and bent out of shape. The sign, which is on lined paper and written in red marker, says, "**Gone Curling. Go away.**"
+Normand Angus Morgan is standing outside Bee's upstairs sewing room, about to knock on the door, which is entirely closed. There's a paper sign stuck to it with too much masking tape. The masking tape looks like it's been recycled from some other projects - all torn up and bent out of shape. The sign, which is on lined paper and written in red marker, says, "**Gone Curling. Go away.**"
 
-Normand's niece is one of the three most important, complicated women in his life. He has several minutes before the other two arrive. He's brought a van-load of groceries. Not that Maeve needs any. Norm just needed an excuse to have to drive the minivan over the causeway, because then Claudette would insist that she and Olivia get out and walk, and that gives Norm important minutes to apologize to Maeve before he might have to do it in front of Claudette, and with Olivia stomping around mad at everybody and everything in the background and foreground and everywhere. That would make the apology at least three times more complicated. At least.
+His niece is one of the three most important, complicated women in his life. He has several minutes before the other two arrive. He's brought a van-load of groceries. Not that Maeve needs any. Norm just needed an excuse to have to drive the minivan over the causeway, because then Claudette would insist that she and Olivia get out and walk, and that gives him important minutes to apologize to Maeve before he might have to do it in front of Claudette, and with Olivia stomping around mad at everybody and everything in the background and foreground and everywhere. That would make the apology at least three times more complicated. At least. 
 
-Normand isn't a big fan of messing up in front of people. He knows he's not perfect, he'd just rather make his mistakes when nobody is around to point them out so damn quick. He already knows damn well about the mistakes. No sense in making things worse.
+Olivia says he's being sexist for calling women complicated, just because they are women, but Norm chooses to silently disagree with his daughter on a number of things, that being one of them.
 
 "Maeve." Normand says, in his flat voice. "Hey, Maeve." 
 
-He knocks once. The sewing room - or Curling Room, as it's called when Maeve is having a moment in there - is small, and he knows his niece is right there on the other side of the door, on a cot, under one or more blankets. Depending on her mood, she might have dragged the sewing table in front of the door. That would not stop Normand from opening it, just slow him down a bit, but he's not going to open anything anyway. The Curling Room is a protected habitat. A person doesn't go in without Maeve's permission, when she's curling. That's just the rule.
+He knocks once. The sewing room - or Curling Room, as it's called when Maeve is having a moment in there - is small, and he knows his niece is right there on the other side of the door, on a cot, under one or more blankets. Depending on her mood, she might have dragged the sewing table in front of the door. That would not stop Normand from opening it, but he's not going to open anything anyway. The Curling Room is a protected habitat. A person doesn't go in without Maeve's permission, when she's curling. That's just the rule.
 
 "Maeve. It's Normand. You in there?"
 
@@ -48,7 +48,7 @@ The muffled voice gets a little louder. It sounds like, "Go away. But leave the 
 
 Maeve's voice sounds like it's coming from under three or four blankets in there. Maybe it's Bee's big old one. "I don't want to see anybody, I'm curling. Go away." there's a short pause, then, "thanks for the pie. Say hi to Olive for me when you leave."
 
-Normand rubs his face in his big hand, and thumps his forehead on the door. "Maeve. Look. I'm sorry I got mad that you fell off the roof. I was a jerk, obviously."
+Normand rubs his face in his hand, and thumps his forehead on the door. "Maeve. Look. I'm sorry I got mad that you fell off the roof. I was a jerk, obviously."
 
 "I know that." says the muffled voice.
 
@@ -70,8 +70,6 @@ Long pause. "My foot's fine, thanks for asking."
 
 Normand doesn't know how he keeps getting himself into these things. Why did he only tell *Maeve* she was supposed to wait for him till the weekend? Why didn't he tell Claudette too? Then Claudette would have told him that it wasn't a good idea to ask Maeve to remember anything when she's upset. Maeve has been upset for months, since Bee.
 
-Claudette always knows when Normand's decisions aren't going to be the right ones. Without Claudette, every decision Norm makes is just a coin toss. That's how it feels some days, to Norm.
-
 He takes a breath. "Maeve. C'mon. Let me come in and say I'm sorry, to my niece the Blanket Ball. Then I'll leave her alone."
 
 "My foot's fine. I want my pie now please."
@@ -88,17 +86,17 @@ Maeve is curled up inside a thick, great big old blanket that still smells like 
 
 "Maevis, can I come in? The pie won't fit under the door."
 
-Maeve's foot really hurts. She doesn't want to make a big deal about that right now, but it really does. It's swollen and huge and it's still throbbing and the brace itches too. 
+Maeve's foot really hurts. She doesn't want to make a big deal about that right now, but it really does. It's swollen and it's still throbbing and the brace itches too. 
 
 When she first fell two days ago, and her ankle went sort of sideways, she had gone down like a sack of potatoes, and then the old ladder had fallen on her, like it was trying to finish her off for good - like it could tell the fall hadn't killed her. In that moment, when the ladder tried to finish her off, after she'd already maybe broken her leg, it was like the Whole World had decided to finally attack her at once. An ambush. Everything wasn't where it should be, and her old ladder, in its death throes, had tried to take her with it. After all they'd been through. 
 
 It made her really angry, even though she was stunned from the fall and scared she'd broken something, and angry the masking tape hadn't held, and that she already knew it wouldn't anyway, and worried about the ice tea with Liz that she maybe wasn't going to have now. Worried about wanting a sister, and never having one. Wanting her Aunt Bee back. There were a lot of emotions.
 
-She had just laid there on the ground, wondering if she had broken her leg, and getting angrier at the Whole World for attacking her that week - that whole year - and her foot started to get all warm and throbbing and it wasn't until later that it *really* started to hurt, when she had finally crawled, then hobbled to where her phone had gone (it happened to be under the kitchen table this time) and called Normand and yelled at him and then he started yelling back and she remembered that she had forgotten their deal to shingle the roof together on the weekend, and she knew she wouldn't be able to get the shingles on the roof in time for Liz's visit now, and her whole plan to tell Liz something scary and important and powerful - that she loved her - that she had been braving herself up to do for the last three months now, was all ruined. Just ruined. The Whole World had tried to take her out. It succeeded. That's what it felt like to Maeve, right then.
+She had just laid there on the ground, wondering if she had broken her leg, and getting angrier at the Whole World for attacking her that week - that whole year - and her foot started to get all warm and throbbing and it wasn't until later that it *really* started to hurt, when she had finally crawled, then hobbled to where her phone had gone (it happened to be under the kitchen table this time) and called Normand and yelled at him and then he started yelling back and then she remembered that she had forgotten their deal to shingle the roof together on the weekend, and she knew she wouldn't be able to get the shingles on the roof in time for Liz's visit now, and her whole plan to tell Liz something scary and important and powerful - that she loved her - that she had been braving herself up to do for the last three months now, was all ruined. Just ruined. The Whole World had tried to take her out. It succeeded. That's what it felt like to Maeve, right then, when the ladder went sideways.
 
 And then while yelling at Norm later on the phone, she had heard Claudette in the background asking Normand what was going on and then they were arguing and it was all because Maeve used masking tape to fix the old ladder, because the wheelbarrow had had a flat since last year, and she had lost the air pump somewhere, and she had just forgotten too many things in a row this time. And now Claudette and Normand were mad at each other, because Maeve had maybe broken her leg, because of all that. Everything was her fault. 
 
-And then Liz had come over early yesterday, already sad, and Maeve had made things so much worse, even though it was really Peotr who had made things so much worse, and Maeve had hobbled around all day after Liz left, trying not to think about how Liz was angry with her now, and might never ever come back, and Maeve might never see Harry again either, until she was maybe an old maid on her deathbed, when he finally would, just one last time, like in tragic movies. Her imagination was really upset too. It really was.
+And then Liz had come over early yesterday, already sad, and Maeve had made things so much worse - even though it was really Peotr who had made things so much worse - and Maeve had hobbled around all day after Liz left, trying not to think about how she was angry with her now, and might never ever come back, and Maeve might never see Harry again either, until she was maybe an old maid on her deathbed, when he finally would, just one last time, like in tragic movies. Her imagination was really upset too. It really was.
 
 She just couldn't have Liz join the rest of the Whole World being mad at her, for forgetting to do one more thing that she should have done sooner. She should have told Liz that Peotr almost kissed her, back when it had almost happened. She had just wanted that whole part to go away, like it had *never* almost happened. She often almost managed to forget some things. Not that one though.
 
@@ -124,7 +122,7 @@ Maeve curls up tighter, balling the giant blanket even more impossibly around he
 
 "Maeve -"
 
-"I want to be alone." Maeve hears Normand coming up the front porch outside. It sounds like he's carrying a hundred grocery bags. She hopes he brought Ketchup chips.
+"I want to be alone." Maeve hears her uncle coming up the front porch outside. It sounds like he's carrying a hundred grocery bags. She hopes he brought Ketchup chips.
 
 Claudette leaves the door a bit open, and pulls up a chair, next to the cot where the huge pile of balled-up blanket is devouring her Niece. "Maeve, nobody's mad at you. Don't think that, OK? Normand just got upset because I freaked at him, because he had just told me that you fell off the roof. We were both terrified you had gotten hurt really bad. I'm sorry you heard us fighting. It's not the first time. That's what we do, you know, whenever he does something stupid." She gives the blanket-ball a playful poke. "It happens a lot, right? Not your fault."
 
@@ -134,7 +132,7 @@ Claudette's puts a hand on the blanket-ball. "*Nobody's* mad at you Maeve. We're
 
 But things won't be alright, Maeve doesn't see how they could be. Everything went sideways. Her foot, her best friendship... even her ladder didn't fall right. Physics was a real jerk this week. Why doesn't Claudette ask her who *is* mad at her? That's all Maeve wants - somebody to ask her what's *wrong*, not tell her that there's nothing wrong. And she wants her pie now. She doesn't need it heated, cold pie is fine.
 
-"We're going to stay the weekend, OK? Olivia's brought her homework and her sparkly tween attitude. Normand's going to get the shingles done tomorrow, and you and I can eat ice cream all day. I brought some tapes. We'll get out Bee's VHS and we'll watch *Fraggle Rock* and nobody will say anything. I promise."
+"We're going to stay the weekend, OK? Olivia's brought her homework and her sparkly tween attitude. Normand's going to get the shingles done tomorrow, and you and I can eat ice cream all day. I brought some tapes. We'll get out Bee's VHS and we'll watch Fraggle Rock and nobody will say anything. I promise."
 
 "I want to be alone", mumbles Maeve, but she knows now that Claudette won't leave her all alone. 
 
@@ -162,7 +160,9 @@ Somebody has carved the words "*pee pee!*" on her desk, using a pocket knife, or
 
 "Hey," some kid next to her says. "Hey, you, *kid*. Hey. What's your name?"
 
-Maeve feels her face flush. She doesn't look up. There are kids all around, all looking at her from their desks, and as they walk in and pass by, and they are swapping stories about where she might have come from, and wondering if anybody knows where she lives, or if she can talk. Maybe she can't hear, one of the kids wonders. Maeve just holds onto her new desk, and imagines it's a rocket-powered desk, and maybe it will launch her out of here any minute, really quick. Not quick enough.
+Maeve feels her face flush. She doesn't look up. There are kids all around, all looking at her from their desks, and as they walk in and pass by, and they are swapping stories about where she might have come from, and wondering if anybody knows where she lives, or if she can talk. Maybe she can't hear, one of the kids wonders. 
+
+Maeve just holds onto her new desk, and imagines it's a rocket-powered desk, and maybe it will launch her out of here any minute, really quick. Not quick enough.
 
 "Hey, kid. What, can you hear me? *Mitch, shut up!*" The kid hisses something to Mitch, whoever that is, who has said something about Maeve, that she tried not to hear. Maeve isn't sure if she is going to be able to hold on to the desk hard enough, for long enough. She feels like she might fall backward, and tumble to the back of the room, and hit the wall there, among all the coats and posters, because it feels like it's all titling up. Why did someone need to carve "*pee pee!*" on her desk? Did they know she was going to have to sit here, and stare at that, maybe all year?
 
@@ -186,7 +186,7 @@ Sometimes, when everything seems to be moving on its own, Maeve finds rocking ba
 
 There's a rushing sound now and Maeve's hands are numb from holding on to the desk pretty hard. She forgot her watch, she forgot her watch, she forgot her watch. She doesn't know how many more minutes this class is going to be. It hasn't started yet. She's in the middle of the room. Row 4, Column 3.
 
-Her eyes are closed, and she's holding her breath. Ani told her to close her eyes and breathe. But she's holding her breath instead. She forgot some instructions. 
+Her eyes are closed, and she's holding her breath. Her mother told her to close her eyes and breathe, when she needs to be calmer. But she's holding her breath instead. She forgot some instructions. 
 
 And then, a voice. Like a bell.
 
@@ -204,7 +204,7 @@ Maeve has maybe stopped rocking - just a little bit.
 
 A desk scrapes against the floor and then Maeve opens one eye and sees a desk trying to scooch up next to hers, and the desk politely waits while Maeve moves her hand so Liz with the voice like a bell can put the desks completely together, and then they're together.
 
-"My name is Liz." says the voice, like a bell. Maeve feels herself nod. The teacher is at the front of the class now, telling everybody to take their seats, and welcome Miss Maevis Morgan, and then says everybody open their textbooks, and Liz's hand, poking out from a fuzzy blue sweater, opens Maeve's book, and then opens her own, and their textbooks sit there, touching corners, all class.
+"My name is Liz." says Liz's voice. Maeve feels herself nod. The teacher is at the front of the class now, telling everybody to take their seats, and welcome Miss Maevis Morgan, and then says everybody open their textbooks, and Liz's hand, poking out from a fuzzy blue sweater, opens Maeve's book, and then opens her own, and their textbooks sit there, touching corners, all class.
 
 That first period, Liz's voice answers any question anybody asks Maeve, after Maeve doesn't answer it, so Maeve can just look at the words "*pee pee!*" carved on her desk, and wonder why somebody would write that, and then why would they draw it too, and did they use a pocketknife, or a compass? Liz has a kind, clear voice, like a bell. Liz is good at math, and spelling, and answering questions. Maeve wants to know what Liz looks like, past her blue, fuzzy sweater sleeve, but she'd rather not look up, so she's going to look down or keep her eyes closed all day, if she can figure out how to do that without walking into anybody or into traffic.
 
@@ -218,9 +218,11 @@ It's not what Maeve or Mitchell expected, such a strange promise: *or I'll never
 
 And Mitch doesn't say sorry or pick up the Pop Tart - he doesn't say anything at all, and the shadows over the hopscotch game are gone quickly, and the back of Liz's head is there while she picks up Maeve's fallen Pop Tart, and her hand from the fuzzy blue sweater brushes it off and hands it back to her, and Maeve feels herself nod.
 
-The day goes a bit better after that, but still really long. There are lots of kids calling Maeve *Kid* and *Hey* and one or two are calling her *Maeve* even, like Liz does, and there are lots of questions and she has to make things stop moving, but Liz's voice is just right there, the whole day, like a bell, and Maeve doesn't know what Liz looks like, except for the fuzzy blue sweater, and the colour of her hair, because she keeps her eyes closed or looking down most of the time, and she just imagines what Liz looks like, by listening to her words, all on their own. 
+The day goes a bit better after that, but still really long. There are lots of kids calling Maeve *Kid* and *Hey* and one or two are calling her *Maeve* even, like Liz does, and there are lots of questions and she has to make things stop moving, but Liz's voice is just right there, the whole day, and Maeve doesn't know what Liz looks like, except for the fuzzy blue sweater, and the colour of her hair, because she keeps her eyes closed or looking down most of the time, and she just imagines what Liz looks like, by listening to her words, all on their own. 
 
-And Maevis imagines a knight in shining armour - but wearing a fuzzy sweater, and with a kind, clear voice like a bell, who is good at math, and spelling, and answering questions, but who forgot their glasses somewhere, so they have to sit next to Maeve. Maeve never thought that knights might need to wear glasses, or could wear fuzzy sweaters. Nobody told her those things about knights - she found them out for herself, in school.
+And Maevis imagines a knight in shining armour - but wearing a fuzzy sweater, and with a kind, clear voice like a bell, who is good at math, and spelling, and answering questions, but who forgot their glasses somewhere, so they have to sit next to Maeve. 
+
+Maeve never thought that knights might need to wear glasses, or could wear fuzzy sweaters. Nobody told her those things about knights - she found them out for herself, in school.
 
 That day is the longest day Maeve will ever spend going to classes. There will be some pretty long days of those ahead, but that one will be the longest she'll ever remember. 
 
