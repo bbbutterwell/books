@@ -1,6 +1,6 @@
 <hr><small><span xmlns:dct="http://purl.org/dc/terms/" property="dct:title"><i>Witches & Knights & Unicorn Fights</i></span> by <a xmlns:cc="http://creativecommons.org/ns#" href="https://github.com/bbbutterwell/book" property="cc:attributionName" rel="cc:attributionURL">BB.Butterwell</a> is licensed under a <a rel="license" href="http://creativecommons.org/licenses/by-sa/4.0/">Creative Commons Attribution-ShareAlike 4.0 International License</a></small><hr/>
 
-## When to Expect the Rain
+## When to Expect the Rain (IN PROGRESS)
 
 *updated 2022-06-28*
 
